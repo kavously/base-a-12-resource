@@ -1,0 +1,1 @@
+# base-a-12-resource
