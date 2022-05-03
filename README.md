@@ -4,6 +4,7 @@
 #### 😍 je n'aiderais personne !
 ##
 #### 😍 Mon Discord : Kavously#9999
+### 🐱‍👤 video explication : https://www.youtube.com/watch?v=aQrStSYso5M&ab_channel=KavouslyQLF
 
 
 ### 💕 Le Lien : https://anonfiles.com/X0mc78c3y6/base_12_resource_rar
